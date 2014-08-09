@@ -1,0 +1,1 @@
+# HZ ColloquiumのWEBページ用リポジトリだよ☆ミ
